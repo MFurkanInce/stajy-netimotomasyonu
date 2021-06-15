@@ -1,6 +1,6 @@
 # stajyonetimotomasyonu
 
-                                  PROJENİN ANLATIMI ICIN AŞAĞIDAKİ LİNKE TIKLAYABİLİRSİNİZ
+                                       PROJENİN ANLATIMI ICIN AŞAĞIDAKİ LİNKE TIKLAYABİLİRSİNİZ
                                                                     https://youtu.be/aQ8vFXq7gAw
 
 
