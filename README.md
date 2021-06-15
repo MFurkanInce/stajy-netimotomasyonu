@@ -1,0 +1,1 @@
+# stajy-netimotomasyonu
